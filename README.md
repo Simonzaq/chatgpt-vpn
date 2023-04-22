@@ -2,15 +2,14 @@
 
 ChatGPT-VPN
 靠谱的虚拟充值、技能服务平台 整合数字产业生态上下游供采与运营链路， 提供批量充采、数据服务、API接入等数字产品交易平台的系统对接， 为企业流量变现提供技术、产品、服务、售后等全套解决方案。 虚拟商品包含游戏娱乐、影视音频、知识付费、生活服务、电信充值、OpenAI ChatGPT、AppleID充值/注册等领域。
-[image](https://github.com/Simonzaq/chatgpt-vpn/edit/main/img/wechat.jpg?raw=true)
+[image](https://github.com/Simonzaq/chatgpt-vpn/blob/f364d87b1684dd71e77bb7e53b1d4f4c7e88ae88/img/wechat.jpg?raw=true)
 扫码添加联系我们
 
 ChatGPT Plus 组队使用 账号均海外人工注册 放心使用
 仅提供Plus服务不保障GPT4回答次数，所有账号海外人工注册上架前均测试过，拍前需确认网络环境，不以网络登录问题退款。介意勿拍
 
 拍前确认网络可登录，需高质量海外IP 不因网络问题退款介意勿拍 GPT4官方限量，不保障100%有 海外人工注册 翻车包赔 先买票后上车，感觉上车，准备发车！！！！ ChatGPT：想获得更便捷、智能的回答和帮助？ChatGPT是您的理想选择！立即体验ChatGPT，感受模拟人类对话的超准确、超智能体验。
-
-![image](https://github.com/Simonzaq/chatgpt-vpn/edit/main/img/wechat.jpg?raw=true)
+[image](https://github.com/Simonzaq/chatgpt-vpn/blob/f364d87b1684dd71e77bb7e53b1d4f4c7e88ae88/img/wechat.jpg?raw=true)
 扫码添加联系我们
 
 代搭建安装 V免签+彩虹易支付个人支付对接支付宝、微信 免签约 直接到个人账户安全 PHP版
@@ -36,7 +35,7 @@ PC端挂机软件+特定版本微信
 如果您有以上疑难杂症，点这里就对了，发挥你的钞能力，一键解君愁！
 
 服务内容： 您无需准备以上所需源码，提出要求就好！ 带安装对接以上支付接口！ 您只需提供服务器信息、域名信息、收款二维码、usdt钱包地址即可！
-![image](https://github.com/Simonzaq/chatgpt-vpn/edit/main/img/wechat.jpg?raw=true)
+[image](https://github.com/Simonzaq/chatgpt-vpn/blob/f364d87b1684dd71e77bb7e53b1d4f4c7e88ae88/img/wechat.jpg?raw=true)
 扫码添加联系我们
 
 手工代充 ChatGPT-4 Plus代充服务 充值到您自己的账号当中
@@ -56,7 +55,7 @@ Plus服务到期后可以找在本网站续费, 我们的价格几乎全网最�
 
 1）国内IP无法登录！！请准备好科学上网的梯子工具，本网站有梯子套餐出售，IP都支持chatGPT； 2）本商品仅可以用于学习交流目的，不可用于非法用途； 3）由于商品特殊性，本平台也承担了成本，一旦购入，无法退款，官方行为以外的账号问题我们全程负责
 
-![image](https://github.com/Simonzaq/chatgpt-vpn/edit/main/img/wechat.jpg?raw=true)
+[image](https://github.com/Simonzaq/chatgpt-vpn/blob/f364d87b1684dd71e77bb7e53b1d4f4c7e88ae88/img/wechat.jpg?raw=true)
 扫码添加联系我们
 
 梯子🪜 VPN 支持ChatGPT 谷歌 youtube等绝大部分外网 稳定用chatGPT
@@ -94,7 +93,7 @@ Mac苹果电脑，WindwosPC，安卓手机、苹果手机
 
 订购后找客服获取梯子URL订阅链接 有不清楚的找售后,全程有售后支持！
 
-![image](https://github.com/Simonzaq/chatgpt-vpn/edit/main/img/wechat.jpg?raw=true)
+[image](https://github.com/Simonzaq/chatgpt-vpn/blob/f364d87b1684dd71e77bb7e53b1d4f4c7e88ae88/img/wechat.jpg?raw=true)
 扫码添加联系我们
 
 自动发货 迅雷租号 迅雷超级会员一月
@@ -112,7 +111,7 @@ Mac苹果电脑，WindwosPC，安卓手机、苹果手机
 
 4：遵守使用规则大家都稳定，违规多登100%封号掉线
 
-![image](https://github.com/Simonzaq/chatgpt-vpn/edit/main/img/wechat.jpg?raw=true)
+[image](https://github.com/Simonzaq/chatgpt-vpn/blob/f364d87b1684dd71e77bb7e53b1d4f4c7e88ae88/img/wechat.jpg?raw=true)
 扫码添加联系我们
 
 腾讯视频VIP 激活码 / 直充 价格优惠 官方直冲 腾讯视频会员 可叠加 等各种视频VIP服务
@@ -126,8 +125,7 @@ Mac苹果电脑，WindwosPC，安卓手机、苹果手机
 3.自己资料放一个文件夹，保证账号整洁。
 
 4.禁止分享账号 禁止同时使用VPN、加速器等。
-
-![image](https://github.com/Simonzaq/chatgpt-vpn/edit/main/img/wechat.jpg?raw=true)
+[image](https://github.com/Simonzaq/chatgpt-vpn/blob/f364d87b1684dd71e77bb7e53b1d4f4c7e88ae88/img/wechat.jpg?raw=true)
 扫码添加联系我们
 
 谷歌账号 | Gmail邮箱 自动发货不可自定义邮箱 新号|7位数
@@ -164,6 +162,5 @@ Mac苹果电脑，WindwosPC，安卓手机、苹果手机
 3、账号正常登陆以后，由于人为原因导致封号不在售后范围之内。
 
 4、若您还有其他问题可以咨询客服协商解决。
-
-![image](https://github.com/Simonzaq/vpn/c987a4edaeb178e23a7337b587cf00acd85cedc4/img/wechat.jpg?raw=true)
+[image](https://github.com/Simonzaq/chatgpt-vpn/blob/f364d87b1684dd71e77bb7e53b1d4f4c7e88ae88/img/wechat.jpg?raw=true)
 扫码添加联系我们
