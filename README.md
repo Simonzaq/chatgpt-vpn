@@ -2,7 +2,7 @@
 
 ChatGPT-VPN
 靠谱的虚拟充值、技能服务平台 整合数字产业生态上下游供采与运营链路， 提供批量充采、数据服务、API接入等数字产品交易平台的系统对接， 为企业流量变现提供技术、产品、服务、售后等全套解决方案。 虚拟商品包含游戏娱乐、影视音频、知识付费、生活服务、电信充值、OpenAI ChatGPT、AppleID充值/注册等领域。
-![image](https://github.com/Simonzaq/chatgpt-vpn/edit/main/img/wechat.jpg?raw=true)
+[image](https://github.com/Simonzaq/chatgpt-vpn/edit/main/img/wechat.jpg?raw=true)
 扫码添加联系我们
 
 ChatGPT Plus 组队使用 账号均海外人工注册 放心使用
